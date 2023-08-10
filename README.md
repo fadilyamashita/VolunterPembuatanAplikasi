@@ -7,3 +7,4 @@ Repository ini digunakan sebagai sayembara pencarian volunter untuk pembuatan ap
 Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Fadil Yamashita, [LinkedIn]([https://](https://jkt48.com/member/detail/id/190?lang=id)https://jkt48.com/member/detail/id/190?lang=id)
